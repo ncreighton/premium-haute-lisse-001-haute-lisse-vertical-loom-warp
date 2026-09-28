@@ -1,0 +1,2 @@
+# premium-haute-lisse-001-haute-lisse-vertical-loom-warp
+Tired of losing track of your warp threads mid-project? This Notion template turns the chaos of haute-lisse vertical loom warping into a precise, repeatable system.  Stop guessing warp counts and tension sequences. The Haute Lisse Vertical Loom Warping Tracker gives you a dedicated digital workspace to log every thread, color, and crossing point, s
